@@ -1,4 +1,0 @@
-
-hggggggggggg
-jııııııııııı
-khhhhhhhhhhhh
